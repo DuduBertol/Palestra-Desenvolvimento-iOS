@@ -10,6 +10,11 @@ além disso, subi os slides aqui também.
 aproveite!
 
 ---
+
+🍎 Baixe os slides aqui! - https://drive.google.com/file/d/1_zGcz8FVDW03dXkcQxok3BNWKZvuNPuT/view?usp=sharing
+
+
+---
 # Links sobre mim
 - LinkedIn: https://www.linkedin.com/in/eduardo-bertol/
 - Instagram: https://www.instagram.com/dudubertol_/
